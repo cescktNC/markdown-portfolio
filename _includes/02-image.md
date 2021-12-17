@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[Meme de programadors](https://www.pinterest.es/pin/793337290585506297/)
