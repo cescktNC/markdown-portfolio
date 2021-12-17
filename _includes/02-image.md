@@ -1,1 +1,1 @@
-[Meme de programadors](https://www.pinterest.es/pin/793337290585506297/)
+[Meme de programadors](https://i.pinimg.com/564x/4f/b5/88/4fb5886838c0492fc4b0cee3de87b648.jpg)
